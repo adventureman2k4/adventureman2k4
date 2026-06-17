@@ -1,4 +1,4 @@
-# 🏷️ Product Specifications: @[YourUsername]
+# 🏷️ Product Specifications: @[adventurehuman]
 
 ### 🧪 Ingredients / Composition
 * **Curiosity:** 45%
